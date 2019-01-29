@@ -30,4 +30,4 @@ Dustin Yellin is famous for his human archives, which essentially make a stateme
 
 [Here's a link to the Aurelia Shimkus's TEDx Talk, "The true purpose of art"](https://www.youtube.com/watch?v=0aH3zxg7y_4)
 
-[Here's a link to the Dennis Yellin's TED Talk, "A journey through the mind of an artist"](https://www.youtube.com/watch?v=LN820hIQ17Q)
+[Here's a link to the Dustin Yellin's TED Talk, "A journey through the mind of an artist"](https://www.youtube.com/watch?v=LN820hIQ17Q)
